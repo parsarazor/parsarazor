@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @parsarazor
-- 👀 I’m interested in .cs, philosophy, heavy metal , making jokes
-- 🌱 I’m currently learning c language, excel
-- 💞️ I’m looking to collaborate on learning
-- 📫 How to reach me .. don't even try
-- 😄 Pronouns: ha?
+- 👀 I’m interested in cs and Camus.
+- 🌱 I’m currently learning HOW to do it
+- 💞️ I’m looking to collaborate in MOvies
+- 📫 How to reach me -> better call saul
+- 😄 Pronouns: !Winner
 - ⚡ Fun fact: I never lose, even my virginity
 
 <!---
