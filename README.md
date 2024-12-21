@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @parsarazor
 - 👀 I’m interested in cs and Camus.
-- 🌱 I’m currently learning HOW to do it
-- 💞️ I’m looking to collaborate in MOvies
-- 📫 How to reach me -> better call saul
+- 🌱 I’m currently learning HOW to do it BY MYSELF
+- 💞️ I’m looking to collaborate shakira's music video
+- 📫 How to reach me -> I'm not real
 - 😄 Pronouns: !Winner
 - ⚡ Fun fact: I never lose, even my virginity
 
