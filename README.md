@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @parsarazor
 - 👀 I’m interested in cs and Camus.
-- 🌱 I’m currently learning HOW to do it BY MYSELF
-- 💞️ I’m looking to collaborate shakira's music video
+- 🌱 I’m currently learning HOW to do it BY MYSELF (py, c++, cs, bash,  git)
+- 💞️ I’m looking to collaborate shakira's new music video
 - 📫 How to reach me -> I'm not real
 - 😄 Pronouns: !Winner
 - ⚡ Fun fact: I never lose, even my virginity
