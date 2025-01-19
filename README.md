@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate shakira's new music video
 - 📫 How to reach me -> I'm not real
 - 😄 Pronouns: !Winner
-- ⚡ Fun fact: I never lose, even my virginity
+- ⚡ Fun fact: I never lose, even my virginity(actually im open to collab in new projects)
 
 <!---
 parsarazor/parsarazor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
